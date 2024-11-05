@@ -4,7 +4,7 @@
 
 所以为了可以免费观看Youtube ,Netflix,。更好的使用Google，copilot，ChatGpt搜索问题。工作上可以利用MidJourney完成绘画设计，利用tiktok电商，LinkedIn领英电商等直播卖货。
 
-在本文中将介绍一款付费加速器机场梯子，绕过网络的封锁，实现上网自由，工作便利。同时可以方便回国的朋友使用，不影响继续访问国外网站。
+在本文中将介绍一款[付费加速器机场梯子](https://lemontalking.info/archives/2114)，绕过网络的封锁，实现上网自由，工作便利。同时可以方便回国的朋友使用，不影响继续访问国外网站。
 
 ![老牌机场推荐](https://github.com/user-attachments/assets/9d63c55a-e64d-467f-b2fd-2fe6eef41c53)
 
